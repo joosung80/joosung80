@@ -36,4 +36,6 @@ At **Elanvital AI** (founded Feb 2025), I partner with teams to transform how th
 ### 📫 Get in touch
 
 - 🌐 [elanvital.ai](https://elanvital.ai)
-- 💼 Let's talk about automating what slows your team down
+- 💼 [LinkedIn](https://www.linkedin.com/in/joosung-jin-1a7891b3/)
+- ▶️ [YouTube @elanvitalai](https://youtube.com/@elanvitalai)
+- 💬 Let's talk about automating what slows your team down
